@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BAVA941219MVZLLB09
+BAVA941219MVZLLB09
